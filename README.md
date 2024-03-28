@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Brightside154
-- 👀 I’m interested in videogames 
+- 👀 I’m interested: videogames 
 - 🌱 I’m currently learning english language
-- 💞️ I’m looking to collaborate on funprojects :) 
-- 📫 How to reach me text me
+- 💞️ I’m looking: collaborate on funprojects :) 
+- 📫 How to reach me: text me
 - 😄 Pronouns: Funy, creative, smart 
 - ⚡ Fun fact: I am psychologies 
 
